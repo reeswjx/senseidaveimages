@@ -1,2 +1,2 @@
-# senseidaveimages
-Images of sensei dave
+# sensei dave images
+Images of sensei dave (private sharing)
